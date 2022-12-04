@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SlitherByte
+- 👋 Hi, I’m @Slitherbyte
 - 👀 I’m interested in nothing.
 - 🌱 I’m currently learning in a school.
 - 💞️ I’m looking to collaborate on games
