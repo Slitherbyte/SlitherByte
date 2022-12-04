@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Slitherbyte
+- 👋 Hi, I’m Slitherbyte
 - 👀 I’m interested in nothing.
 - 🌱 I’m currently learning in a school.
 - 💞️ I’m looking to collaborate on a share of 100 million dollars
