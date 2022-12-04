@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Slitherbyte
 - 👀 I’m interested in nothing.
 - 🌱 I’m currently learning in a school.
-- 💞️ I’m looking to collaborate on games
+- 💞️ I’m looking to collaborate on a share of 100 million dollars
 - 📫 How to reach me : use ur hands
 
 <!---
